@@ -1,2 +1,2 @@
-# livros-e-receitas-da-lice
-Meu nome é Analice, tenho 15 anos e tenho paixão por ler! possuo um kindle (leitor digital da Amazon) no qual eu pago um valor para ler os meus amados livros, alguns deles envolvem muitos gatilhos da mente humana e não são para qualquer um, possuindo muitos problemas psicológicos etc.
+# livros-da-lice
+Meu nome é Analice, tenho 15 anos e tenho paixão por ler! possuo um kindle (leitor digital da Amazon) no qual eu pago um valor para ler os meus amados livros, alguns deles envolvem muitos gatilhos da mente humana e não são para qualquer um, possuindo muitos problemas psicológicos etc, com meus livros eu aprendo um amplo vocabulário e tenho uma noção de alguns problemas atuais, eles na maioria das vezes tem romance, mas não é um romance nem um pouco saudável, é problemático e te ensina a não seguir esses passos e ideais.
